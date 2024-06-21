@@ -1,7 +1,7 @@
 ## Hi there 👋
 <!--  -->
 
-🏅About Me
+🏅About Me
 
 - 🎓 I am currently studying in a Korean university
 - 🌱 I’m currently learning nursing and linguistics.
